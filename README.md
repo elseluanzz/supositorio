@@ -1,2 +1,0 @@
-# supositorio
-vamos juntos
